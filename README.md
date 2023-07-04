@@ -11,7 +11,7 @@ I'm an enthusiastic learner exploring new fields and trying to be the best in my
 
 <br>
 
-## **Connect with Me On Social Media** 🤝🏻 &nbsp;
+## **Connect with me** 🤝🏻 &nbsp;
 
 <h3 align="left">
 <a href="https://www.linkedin.com/in/saiganesht/"><img src="https://img.icons8.com/color/96/000000/linkedin.png" alt="linkedin"/></a>
